@@ -35,9 +35,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The demonstration of Antichrist. By Edmund Gurnay, Bach. Theol. p. of Harpley NorfolkeGurnay, Edmund
+
+1. TO THE ALL-HOPEFVLL Charles, BY THE GRACE OF GOD, PRINCE of Wales, &c.
+
 #####Body#####
-The demonstration of Antichrist. By Edmund Gurnay, Bach. Theol. p. of Harpley NorfolkeGurnay, Edmund
+
+1. ECCE ANTICHRISTƲM.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
